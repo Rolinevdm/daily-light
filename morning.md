@@ -1,15 +1,15 @@
 **Morning**
 
-**God is my defence.**
+**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
  
-The LORD is my rock, and my fortress, and my deliverer; the God of my rock; in him will I trust: he is my shield, and the horn of my salvation, my high tower, and my refuge, my saviour. -- The LORD is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
+Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
  
-When the enemy shall come in like a flood, the Spirit of the LORD shall lift up a standard against him. -- We may boldly say, The LORD is my helper, and I will not fear what man shall do unto me.
+Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
  
-The LORD is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid? As the mountains are round about Jerusalem, so the LORD is round about his people from henceforth even for ever. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
+Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
  
-For thy name's sake lead me, and guide me.  
+Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
 
-**Psa 59:9; 2 Sam 22:2,3; Psa 2:7; Isa 59:19; Heb 13:6; Psa 27:1; Psa 125:2; Psa 63:7; Psa 31:3**
+**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
 
-[Tuesday 15-October, 2024](https://t.me/daily_light)
+[Friday 18-October, 2024](https://t.me/daily_light)

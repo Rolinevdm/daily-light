@@ -1,28 +1,34 @@
 # Morning
 
-**God is my defence.**
+**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
  
-The LORD is my rock, and my fortress, and my deliverer; the God of my rock; in him will I trust: he is my shield, and the horn of my salvation, my high tower, and my refuge, my saviour. -- The LORD is my strength and my shield; my heart trusted in him, and I am helped: therefore my heart greatly rejoiceth; and with my song will I praise him.
+Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
  
-When the enemy shall come in like a flood, the Spirit of the LORD shall lift up a standard against him. -- We may boldly say, The LORD is my helper, and I will not fear what man shall do unto me.
+Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
  
-The LORD is my light and my salvation; whom shall I fear? the LORD is the strength of my life; of whom shall I be afraid? As the mountains are round about Jerusalem, so the LORD is round about his people from henceforth even for ever. -- Because thou hast been my help, therefore in the shadow of thy wings will I rejoice.
+Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
  
-For thy name's sake lead me, and guide me.  
+Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
 
-**Psa 59:9; 2 Sam 22:2,3; Psa 2:7; Isa 59:19; Heb 13:6; Psa 27:1; Psa 125:2; Psa 63:7; Psa 31:3**
+**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
 
 # Evening
 
-**Forgive us our debts, as we forgive our debtors.**
+**Amen.**
  
-Lord, how oft shall my brother sin against me, and I forgive him? till seven times? Jesus saith unto him, I say not unto thee, Until seven times: but, Until seventy times seven. -- O thou wicked servant, I forgave thee all that debt, because thou desiredst me: shouldest not thou also have had compassion on thy fellow servant, even as I had pity on thee? And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due unto him. So likewise shall my heavenly Father do also unto you, if ye from your hearts forgive not every one his brother their trespasses. -- Be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ's sake hath forgiven you. -- You, ... hath he quickened, ... having forgiven you all trespasses; blotting out the handwriting of ordinances that was against us, which was contrary to us, and took it out of the way, nailing it to his cross. -- Even as Christ forgave you, so also do ye.  
+Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
+ 
+When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
+ 
+These things saith the Amen, the faithful and true witness. -- For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.
+ 
+Blessed be the LORD God, the God of Israel, who only doeth wondrous things. And blessed be his glorious name for ever. Amen, and Amen.  
 
-**Matt 6:12; Matt 18:21,22; Matt 18:32-35; Eph 4:32; Col 2:13,14; Col 3:13**
+**Matt 6:13; 1 Kgs 1:36; Isa 65:16; Heb 6:13,16-18; Rev 3:14; 2 Cor 1:20; Psa 72:18,19**
 
 ---
 
-[Tuesday 15-October, 2024](https://t.me/s/daily_light)
+[Friday 18-October, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 
